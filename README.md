@@ -28,4 +28,3 @@ PART 3. 기대효과
 ![트윈2](https://user-images.githubusercontent.com/45071833/102363874-3693e200-3ff9-11eb-88c0-85d049b0a2dd.JPG)
 
 
-상금으로 100만원이랑 에어팟 프로 받았음~~
